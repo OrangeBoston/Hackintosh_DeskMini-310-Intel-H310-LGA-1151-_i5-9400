@@ -1,0 +1,1 @@
+# Hackintosh_DeskMini-310-Intel-H310-LGA-1151-_i5-9400
